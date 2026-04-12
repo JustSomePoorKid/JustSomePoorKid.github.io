@@ -1,1 +1,0 @@
-# JustSomePoorKid.github.io
